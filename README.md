@@ -61,3 +61,6 @@ You're allowed to:
 
 *
 i dont know anymore..
+
+![pixelated-star-background-e09dbw6zvuyp420b](https://github.com/user-attachments/assets/a31e4f01-1143-41f5-bf79-518f2b0f537a)
+

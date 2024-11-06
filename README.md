@@ -1,6 +1,6 @@
 ## Howdy. !!
 
-<Hi, I'm Aein and get to know me right here: (this is for ponytown.)
+Hi, I'm Aein and get to know me right here: (this is for ponytown.)
 
 FANDOMS: Roblox, TR:UD, TAWOG, Adventure Time, Friday Night Funkin, Rodamrix, Vs. Impostor, Among Us, Yume Nikki, FAI†H: The Unholy Trinity, Tattletail, OSC, Sonic The Hedgehog, Regretevator, Dandy's World, Sprunki.
 
@@ -60,6 +60,6 @@ You're allowed to:
 - rant or vent (ill try my best to comfort.)
 
 -
-i dont know anymore.
+i dont know anymore.any
 
-! [https://pin.it/62qBy0zlN]
+![GIF of pixelated Miles Tails Prower from Sonic The Hedgehog riding a plane.](https://pin.it/62qBy0zlN)

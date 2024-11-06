@@ -38,7 +38,7 @@ Shelly, Tisha, Toodles, Shrimpo, Vee. (DW)
 
 Simon, Tunner, Jevin, Sky, Oren. (SPRUNKI)
 
-!--
+*
 
 ... Do not interact with me if:
 
@@ -61,3 +61,5 @@ You're allowed to:
 
 -
 i dont know anymore.
+
+! [https://pin.it/62qBy0zlN]

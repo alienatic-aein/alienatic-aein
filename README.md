@@ -4,7 +4,7 @@ Hi, I'm Aein and get to know me right here: (this is for ponytown.)
 
 FANDOMS: Roblox, TR:UD, TAWOG, Adventure Time, Friday Night Funkin, Rodamrix, Vs. Impostor, Among Us, Yume Nikki, FAI†H: The Unholy Trinity, Tattletail, OSC, Sonic The Hedgehog, Regretevator, Dandy's World, Sprunki.
 
-- Favorite characters from each of the fandoms i mentioned there.
+* Favorite characters from each of the fandoms i mentioned there.
 
 Noob, Guest, Acorn. (Roblox)
 
@@ -59,5 +59,5 @@ You're allowed to:
 - crown my skin/cosplay
 - rant or vent (ill try my best to comfort.)
 
--
-i dont know anymore.any
+*
+i dont know anymore..

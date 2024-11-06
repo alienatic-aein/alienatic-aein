@@ -61,5 +61,3 @@ You're allowed to:
 
 -
 i dont know anymore.any
-
-![GIF of pixelated Miles Tails Prower from Sonic The Hedgehog riding a plane.](https://pin.it/62qBy0zlN)

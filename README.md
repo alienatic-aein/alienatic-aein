@@ -1,4 +1,4 @@
-## Hi there 👋
+## Hi, uhh, this isn't done yet so yeah.
 
 <!--
 **alienatic-aein/alienatic-aein** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.

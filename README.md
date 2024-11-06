@@ -1,4 +1,4 @@
-## Howdy.
+## Howdy. !!
 
 <Hi, I'm Aein and get to know me right here: (this is for ponytown.)
 
@@ -6,22 +6,38 @@ FANDOMS: Roblox, TR:UD, TAWOG, Adventure Time, Friday Night Funkin, Rodamrix, Vs
 
 - Favorite characters from each of the fandoms i mentioned there.
 
-> Noob, Guest, Acorn. (Roblox)
-> Sawnoob, Guest 666, Builderman. (TR:UD)
-> Gumball, Darwin, Richard, Teri, Banana Barbara, Rob, Larry, Mr. Mr. Small, Alan. (TAWOG)
-> Finn, Jake, BMO, Fionna, Cake, Princess Bubblegum. (AT)
-> BF, GF, Pico, Nene, Darnell, Lemon Demon. (FNF)
-> Red, White, Blue, Glitchy/Mini Yellow (ALT), Green, Glitchy. (Rodamrix)
-> Black, Maroon, White, Gray/Grey, Yellow, Monotone, Loggo, Red Mungus, Jorsawsee, Warchief, Jelqer, Dave, JADS, Powers. (VS.IMP)
-> Y-Fronts, Going2KillEvery1StartingWithU (Who killed Noob69 animation), Yellow, Gumpy, Purple (Everybody loves Purple animation), Red (Hide and Seek Trailer). (AMONG US)
-> Madotsuki, Poniko, Monoko, Monoe, Uboa. (YN)
-> John Ward, Father Garcia, Michael Davies, Amy Martins. (FAI†H)
-> Tattletail, Mama Tattletail. (TT)
-> all algebraliens, Fanny, Coiny, Test Tube, Toilet, Mephone4, GPS, Tophat, Animatic, Clock, Jej, Words with Tiles (i forgot?), No Way, Exclamation Mark, Lightbolb, Knify, Kurasan, Nansensu. (OSC)
-> Sonic, Tails, Dr. Ivo "eggman" Robotnik, Rouge, Shadow, Silver, Blaze, Mephiles, Knuckles and much more ackk.. (STH)
-> Poob, Lampert, Fleshcousin, Reddy. (RGTV)
-> Shelly, Tisha, Toodles, Shrimpo, Vee. (DW)
-> Simon, Tunner, Jevin, Sky, Oren. (SPRUNKI)
+Noob, Guest, Acorn. (Roblox)
+
+Sawnoob, Guest 666, Builderman. (TR:UD)
+
+Gumball, Darwin, Richard, Teri, Banana Barbara, Rob, Larry, Mr. Mr. Small, Alan. (TAWOG)
+
+Finn, Jake, BMO, Fionna, Cake, Princess Bubblegum. (AT)
+
+BF, GF, Pico, Nene, Darnell, Lemon Demon. (FNF)
+
+Red, White, Blue, Glitchy/Mini Yellow (ALT), Green, Glitchy. (Rodamrix)
+
+Black, Maroon, White, Gray/Grey, Yellow, Monotone, Loggo, Red Mungus, Jorsawsee, Warchief, Jelqer, Dave, JADS, Powers. (VS.IMP)
+
+Y-Fronts, Going2KillEvery1StartingWithU (Who killed Noob69 animation), Yellow, Gumpy, Purple (Everybody loves Purple animation), Red (Hide and Seek Trailer). (AMONG US)
+
+Madotsuki, Poniko, Monoko, Monoe, Uboa. (YN)
+
+John Ward, Father Garcia, Michael Davies, Amy Martins. (FAI†H)
+
+Tattletail, Mama Tattletail. (TT)
+
+all algebraliens, Fanny, Coiny, Test Tube, Toilet, Mephone4, GPS, Tophat, Animatic, Clock, Jej, Words with Tiles (i forgot?), No Way, Exclamation Mark, Lightbolb, Knify, Kurasan, Nansensu. (OSC)
+
+Sonic, Tails, Dr. Ivo "eggman" Robotnik, Rouge, Shadow, Silver, Blaze, Mephiles, Knuckles and much more ackk.. (STH)
+
+Poob, Lampert, Fleshcousin, Reddy. (RGTV)
+
+Shelly, Tisha, Toodles, Shrimpo, Vee. (DW)
+
+Simon, Tunner, Jevin, Sky, Oren. (SPRUNKI)
+
 !--
 
 ... Do not interact with me if:

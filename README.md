@@ -30,7 +30,7 @@ Tattletail, Mama Tattletail. (TT)
 
 all algebraliens, Fanny, Coiny, Test Tube, Toilet, Mephone4, GPS, Tophat, Animatic, Clock, Jej, Words with Tiles (i forgot?), No Way, Exclamation Mark, Lightbolb, Knify, Kurasan, Nansensu. (OSC)
 
-Sonic, Tails, Dr. Ivo "eggman" Robotnik, Rouge, Shadow, Silver, Blaze, Mephiles, Knuckles and much more ackk.. (STH)
+Sonic, Tails, Dr. Ivo "eggman" Robotnik, Rouge, Shadow, Silver, Blaze, Mephiles, Knuckles, Amy and alot whole more to go and i dont wanna write it all!. (STH)
 
 Poob, Lampert, Fleshcousin, Reddy. (RGTV)
 

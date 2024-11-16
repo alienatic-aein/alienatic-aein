@@ -2,7 +2,7 @@
 
 Hi, I'm Aein and get to know me right here: (this is for ponytown.)
 
-FANDOMS: Roblox, TR:UD, TAWOG, Adventure Time, Friday Night Funkin, Rodamrix, Vs. Impostor, Among Us, Yume Nikki, FAI†H: The Unholy Trinity, Tattletail, OSC, Sonic The Hedgehog, Regretevator, Dandy's World, Sprunki.
+FANDOMS: Roblox, TR:UD, TAWOG, Adventure Time, Friday Night Funkin, Rodamrix, Vs. Impostor, Among Us, Yume Nikki, FAI†H: The Unholy Trinity, Tattletail, OSC, Sonic The Hedgehog, Regretevator, Dandy's World, Sprunki, Lacey Games, Mandela Catalouge.
 
 * Favorite characters from each of the fandoms i mentioned there.
 
@@ -28,9 +28,9 @@ John Ward, Father Garcia, Michael Davies, Amy Martins. (FAI†H)
 
 Tattletail, Mama Tattletail. (TT)
 
-all algebraliens, Fanny, Coiny, Test Tube, Toilet, Mephone4, GPS, Tophat, Animatic, Clock, Jej, Words with Tiles (i forgot?), No Way, Exclamation Mark, Lightbolb, Knify, Kurasan, Nansensu. (OSC)
+all algebraliens, Fanny, Coiny, Test Tube, Toilet, Mephone4, GPS, Tophat, Animatic, Clock, Jej, Words with Tiles (i forgot?), No Way, Exclamation Mark, Lightbolb, Knify, Kurasan, Nansensu, Airy, Liam, Bryce, Amelia, Taylor, Charlotte, Stone, Folder. (OSC)
 
-Sonic, Tails, Dr. Ivo "eggman" Robotnik, Rouge, Shadow, Silver, Blaze, Mephiles, Knuckles, Amy and alot whole more to go and i dont wanna write it all!. (STH)
+Sonic, Tails, Dr. Ivo "eggman" Robotnik, Rouge, Shadow, Silver, Blaze, Mephiles, Knuckles, Amy, Jet and more im lazy to write them all. (STH)
 
 Poob, Lampert, Fleshcousin, Reddy. (RGTV)
 
@@ -38,6 +38,9 @@ Shelly, Tisha, Toodles, Shrimpo, Vee. (DW)
 
 Simon, Tunner, Jevin, Sky, Oren. (SPRUNKI)
 
+Lacey, Mosie, Jay (LACEYGAMES)
+
+i forgot the names of the characters in this fandom help. (MANDELA)
 *
 
 ... Do not interact with me if:

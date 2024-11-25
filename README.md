@@ -2,7 +2,7 @@
 
 Hi, I'm Aein and get to know me right here: (this is for ponytown.)
 
-FANDOMS: Roblox, TR:UD, TAWOG, Adventure Time, Friday Night Funkin, Rodamrix, Vs. Impostor, Among Us, Yume Nikki, FAI†H: The Unholy Trinity, Tattletail, OSC, Sonic The Hedgehog, Regretevator, Dandy's World, Sprunki, Lacey Games, Mandela Catalouge.
+FANDOMS: Roblox, TR:UD, TAWOG, Adventure Time, Friday Night Funkin, Rodamrix, Vs. Impostor, Among Us, Yume Nikki, FAI†H: The Unholy Trinity, Tattletail, OSC, Sonic The Hedgehog, Regretevator, Dandy's World, Sprunki, Lacey Games, Mandela Catalouge, MO4.
 
 * Favorite characters from each of the fandoms i mentioned there.
 
@@ -40,7 +40,10 @@ Simon, Tunner, Jevin, Sky, Oren. (SPRUNKI)
 
 Lacey, Mosie, Jay (LACEYGAMES)
 
-i forgot the names of the characters in this fandom help. (MANDELA)
+Mark Healthcliff, Cesar Torres, Adam Murray, Jonah Marshall, Archangel Gabriel, The Intruder. (MANDELA)
+
+Sigkin, Bachikin, Otsukin, Koritora, Syumitaro, Uie, Fukurou, Axez, Eclair, Taiyo, Arakawa, Kashikin, Zakuro, Jack, Adukin, Marikin, Fusakin, Kirimi, Jeraldy, Jungle, Morikaze. (MO4)
+
 *
 
 ... Do not interact with me if:

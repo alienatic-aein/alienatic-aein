@@ -8,7 +8,7 @@ FANDOMS: Roblox, TR:UD, TAWOG, Adventure Time, Friday Night Funkin, Rodamrix, Vs
 
 Noob, Guest, Acorn. (Roblox)
 
-Sawnoob, Guest 666, Builderman. (TR:UD)
+Sawnoob, Guest 666, c00lkidd, Builderman. (TR:UD)
 
 Gumball, Darwin, Richard, Teri, Banana Barbara, Rob, Larry, Mr. Mr. Small, Alan. (TAWOG)
 

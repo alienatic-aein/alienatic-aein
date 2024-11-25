@@ -66,7 +66,12 @@ You're allowed to:
 - rant or vent (ill try my best to comfort.)
 
 *
-i dont know anymore..
+SOCIALS YOU CAN ADD ME IN!
+Discord: c00l_kidd.
+Twitter/X: alienaticAein
+Tiktok: alienaticAein
+
+thats all lol!
 
 ![pixelated-star-background-e09dbw6zvuyp420b](https://github.com/user-attachments/assets/a31e4f01-1143-41f5-bf79-518f2b0f537a)
 

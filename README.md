@@ -10,7 +10,7 @@ Noob, Guest, Acorn. (Roblox)
 
 Sawnoob, Guest 666, c00lkidd, Builderman. (TR:UD)
 
-Gumball, Darwin, Richard, Teri, Banana Barbara, Rob, Larry, Mr. Mr. Small, Alan. (TAWOG)
+Gumball, Darwin, Richard, Teri, Banana Barbara, Rob, Larry, Mr. Small, Alan, Julius Oppenheimer. (TAWOG)
 
 Finn, Jake, BMO, Fionna, Cake, Princess Bubblegum. (AT)
 

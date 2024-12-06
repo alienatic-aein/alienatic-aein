@@ -40,7 +40,7 @@ Simon, Tunner, Jevin, Sky, Oren. (SPRUNKI)
 
 Lacey, Mosie, Jay (LACEYGAMES)
 
-Mark Healthcliff, Cesar Torres, Adam Murray, Jonah Marshall, Archangel Gabriel, The Intruder. (MANDELA)
+Mark Healthcliff, Cesar Torres, Adam Murray, Jonah Marshall, Archangel Gabriel, The Intruder (6), Alt Cesar. (MANDELA)
 
 Sigkin, Bachikin, Otsukin, Koritora, Syumitaro, Uie, Fukurou, Axez, Eclair, Taiyo, Arakawa, Kashikin, Zakuro, Jack, Adukin, Marikin, Fusakin, Kirimi, Jeraldy, Jungle, Morikaze. (MO4)
 
@@ -67,7 +67,7 @@ You're allowed to:
 
 *
 SOCIALS YOU CAN ADD ME IN!
-Discord: c00l_kidd.
+Discord: mandela_county
 Twitter/X: alienaticAein
 Tiktok: alienaticAein
 

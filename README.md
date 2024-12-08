@@ -69,7 +69,7 @@ You're allowed to:
 SOCIALS YOU CAN ADD ME IN!
 Discord: mandela_county
 Twitter/X: alienaticAein
-Tiktok: alienaticAein
+Tiktok: alienatic.aein
 
 thats all lol!
 

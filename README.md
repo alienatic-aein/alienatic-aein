@@ -2,7 +2,7 @@
 
 Hi, I'm Aein and get to know me right here: (this is for ponytown.)
 
-FANDOMS: Roblox, TR:UD, TAWOG, Adventure Time, Friday Night Funkin, Rodamrix, Vs. Impostor, Among Us, Yume Nikki, FAI†H: The Unholy Trinity, Tattletail, OSC, Sonic The Hedgehog, Regretevator, Dandy's World, Sprunki, Lacey Games, Mandela Catalouge, MO4, _Boisvert, Doctor Nowhere, AVAM.
+FANDOMS: Roblox, TR:UD, TAWOG, Adventure Time, Friday Night Funkin, Rodamrix, Vs. Impostor, Among Us, Yume Nikki, FAI†H: The Unholy Trinity, Tattletail, OSC, Sonic The Hedgehog, Regretevator, Dandy's World, Sprunki, Lacey Games, Mandela Catalouge, MO4, _Boisvert, Doctor Nowhere, AVAM, Alien Stage.
 
 * Favorite characters from each of the fandoms i mentioned there.
 
@@ -49,13 +49,16 @@ Ouriel, Room, Dogtooth, Complex. (_Boisvert)
 PHEN 228, TOE. (Doctor Nowhere)
 
 Yellow, TSC, TDL, Agent, Red, Green, Navy. (AVAM)
+
+Mizi, Sua, Till, Luka, Hyuna, Ivan. (ALNST)
+
 *
 
 ... Do not interact with me if:
 
 - You're a homo, racist, transphobic or just someone extremely problematic.
 - You try to sexualize me (i am a minor).
-- Made me feel hurt.
+- you made fun of me.
 
 ... If i interact with you:
 
@@ -68,7 +71,6 @@ You're allowed to:
 - c+h
 - w2i
 - crown my skin/cosplay
-- rant or vent (ill try my best to comfort.)
 
 *
 SOCIALS YOU CAN ADD ME IN!

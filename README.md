@@ -2,7 +2,7 @@
 
 Hi, I'm Aein and get to know me right here: (this is for ponytown.)
 
-FANDOMS: Roblox, TR:UD, TAWOG, Adventure Time, Friday Night Funkin, Rodamrix, Vs. Impostor, Among Us, Yume Nikki, FAI†H: The Unholy Trinity, Tattletail, OSC, Sonic The Hedgehog, Regretevator, Dandy's World, Sprunki, Lacey Games, Mandela Catalouge, MO4, _Boisvert, Doctor Nowhere, AVAM, Alien Stage.
+FANDOMS: Roblox, TR:UD, TAWOG, Adventure Time, Friday Night Funkin, Rodamrix, Vs. Impostor, Among Us, Yume Nikki, FAI†H: The Unholy Trinity, Tattletail, OSC, Sonic The Hedgehog, Regretevator, Dandy's World, Sprunki, Lacey Games, Mandela Catalouge, MO4, _Boisvert, Doctor Nowhere, AVAM, Alien Stage, PJSK
 
 * Favorite characters from each of the fandoms i mentioned there.
 
@@ -51,6 +51,9 @@ PHEN 228, TOE. (Doctor Nowhere)
 Yellow, TSC, TDL, Agent, Red, Green, Navy. (AVAM)
 
 Mizi, Sua, Till, Luka, Hyuna, Ivan. (ALNST)
+
+All characters ^^ (PJSK)
+
 
 *
 

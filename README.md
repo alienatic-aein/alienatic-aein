@@ -78,7 +78,7 @@ You're allowed to:
 *
 SOCIALS YOU CAN ADD ME IN!
 
-Discord: bps_archivist
+Discord: myloveish3llfire
 
 Twitter/X: alienaticAein
 

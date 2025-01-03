@@ -2,7 +2,7 @@
 
 Hi, I'm Aein and get to know me right here: (this is for ponytown.)
 
-FANDOMS: Roblox, TR:UD, TAWOG, Adventure Time, Friday Night Funkin, Rodamrix, Vs. Impostor, Among Us, Yume Nikki, FAI†H: The Unholy Trinity, Tattletail, OSC, Sonic The Hedgehog, Regretevator, Dandy's World, Sprunki, Lacey Games, Mandela Catalouge, MO4, _Boisvert, Doctor Nowhere, AVAM, Alien Stage, PJSK
+FANDOMS: Roblox, TR:UD, TAWOG, Adventure Time, Friday Night Funkin, Rodamrix, Vs. Impostor, Among Us, Yume Nikki, FAI†H: The Unholy Trinity, Tattletail, OSC, Sonic The Hedgehog, Regretevator, Dandy's World, Sprunki, Lacey Games, Mandela Catalouge, MO4, _Boisvert, Doctor Nowhere, AVAM, Alien Stage, PJSK, GRACE.
 
 * Favorite characters from each of the fandoms i mentioned there.
 
@@ -54,8 +54,10 @@ Mizi, Sua, Till, Luka, Hyuna, Ivan. (ALNST)
 
 All characters ^^ (PJSK)
 
+Dozer, Heed, Sorrow, Doppel. (GRACE)
 
-*
+
+
 
 ... Do not interact with me if:
 
@@ -86,6 +88,6 @@ Tiktok: alienatic.aein
 
 thats all lol!
 
-![f3a6f3fb1552c0fe220d81a5921ba819](https://github.com/user-attachments/assets/4c453dc4-8ba9-4271-87a7-4447cf6534c0)
+![DozerAnimated1](https://github.com/user-attachments/assets/c53c34d6-e7e3-49fa-9623-e6b0fc509373)
 
 

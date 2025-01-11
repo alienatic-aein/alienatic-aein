@@ -80,7 +80,7 @@ You're allowed to:
 *
 SOCIALS YOU CAN ADD ME IN!
 
-Discord: myloveish3llfire
+Discord: 25ji.nightcordde
 
 Twitter/X: alienaticAein
 
